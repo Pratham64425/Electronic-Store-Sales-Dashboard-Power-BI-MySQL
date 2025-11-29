@@ -77,3 +77,8 @@ Best-performing products
 High-performing stores and regions
 
 Overall business growth and challenges
+
+![Image](https://github.com/user-attachments/assets/37e7e834-885a-4a93-8ba9-28cd3517d1a5)
+![Image](https://github.com/user-attachments/assets/795c5c58-b328-4a1f-9644-15bf1775a48e)
+![Image](https://github.com/user-attachments/assets/bbd0053a-8d7c-47c9-8129-d2f9216852d6)
+![Image](https://github.com/user-attachments/assets/b9b0d0f3-45a1-4eae-a22d-a02f95e48b5c)
